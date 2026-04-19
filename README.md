@@ -1,1 +1,1 @@
-# dan-manl-k-sitesi
+danismanlik sitesi
